@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pobba-dud
 - 👀 I’m interested in Java and webdev
-- 🌱 I’m currently learning how Web Development
+- 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on stuff and things
 - 📫 How to reach me? jimenezaidan@icloud.com
 - 😄 Pronouns: He/Him
