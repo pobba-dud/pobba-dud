@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pobba-dud
 - 👀 I’m interested in your mom
-- 🌱 I’m currently learning how to please ur woman
+- 🌱 I’m currently learning how to take ur woman
 - 💞️ I’m looking to collaborate on overthrowing the government
 - 📫 How to reach me? dont
 - 😄 Pronouns: The/Goat
