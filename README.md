@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @pobba-dud
-- 👀 I’m interested in your mom
-- 🌱 I’m currently learning how to take ur woman
-- 💞️ I’m looking to collaborate on overthrowing the government
-- 📫 How to reach me? dont
-- 😄 Pronouns: The/Goat
+- 👀 I’m interested in Java and webdev
+- 🌱 I’m currently learning how Web Development
+- 💞️ I’m looking to collaborate on stuff and things
+- 📫 How to reach me? jimenezaidan@icloud.com
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have died before, i will do it again
 
 <!---
