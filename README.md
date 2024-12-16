@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @pobba-dud
+- 👋 Hi, I’m Aidan
 - 👀 I’m interested in Java and webdev
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on stuff and things
-- 📫 How to reach me? jimenezaidan@icloud.com
+- 📫 How to reach me?
+- jimenezaidan@icloud.com
+- aidanjimenez77@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have died before, i will do it again
 
