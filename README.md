@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on stuff and things
 - 📫 How to reach me?
-- jimenezaidan@icloud.com
 - aidanjimenez77@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: im in crippling debt
